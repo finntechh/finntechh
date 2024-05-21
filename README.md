@@ -1,5 +1,5 @@
 
-# Hi! I'm Finn 🧙🏼‍♂️
+# Hi! 🧙🏼‍♂️
 
 - *Creative* Projects | 🥼
 - Problem solving | 👾
